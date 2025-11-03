@@ -1,1 +1,1 @@
-# PepeloN-Circle-Widget
+https://pepelonmyown.ru/privacy.html
